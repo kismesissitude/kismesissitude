@@ -1,16 +1,20 @@
-## Hi there 👋
+![ac captainrujo](https://github.com/user-attachments/assets/97540852-6dd0-49f2-85fa-7be74647ab60)
 
-<!--
-**kismesissitude/kismesissitude** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎‎LACEY OR DOC, HE/SHE/IT, FEMININE DUDE
+
+
+  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎17 (2007), DID SYSHOST, WHISP 2 INTERACT
+
+  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎NO DNI I'LL BLOCK OR HIDE FREELY IF YOU ANNOY ME
+
+
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎‎‎‎c+h are always free unless i'm with friends :3
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎[prns cc.](https://pronouns.cc/@1x1x1x1)‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ [‎‎atabook.](https://1x1x1x1.atabook.org)‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ [‎‎roblox.](https://www.roblox.com/users/1578858/profile)
