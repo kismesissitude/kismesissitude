@@ -12,9 +12,15 @@
 
 
 
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎I AM USUALLY ON WITH MY BOYFRIEND AND WILL BE SHY!
+
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎^^ SRRY IF I DON'T TALK MUCH.. GULP
+
+
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎‎‎‎c+h are always free unless i'm with my boyfriend ^_^"
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ c+h are always free to friends/strangers unless i'm with my bf ^_^"
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎[prns cc.](https://pronouns.cc/@1x1x1x1)‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ [‎‎strawpage.](https://basilios.straw.page)‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎ [‎‎roblox.](https://www.roblox.com/users/1578858/profile)
