@@ -9,7 +9,7 @@
 <details>
   <summary>ㅤlinks</summary>
 
- remaking fluffle #brbㅤ[ata](https://davejade.atabook.org/)ㅤ[prns.cc](https://pronouns.cc/@chevelle)
+ [fluffle](https://fluffle.cc/wack)ㅤ[ata](https://davejade.atabook.org/)ㅤ[prns.cc](https://pronouns.cc/@chevelle)
   
 </details>
 
